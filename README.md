@@ -1,0 +1,1 @@
+# yzmslinq.github.io
